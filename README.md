@@ -1,6 +1,6 @@
 <img width="730" height="107" alt="Image" src="https://github.com/user-attachments/assets/1f96c75f-e0d1-416c-a8a1-1bdfd3ba9774" />
 
-![૮ ˶ᵔ ᵕ ᵔ˶ ა](https://komarev.com/ghpvc/?username=lustingserenity&label=૮%20˶ᵔ%20ᵕ%20ᵔ˶%20ა&color=DC143C&style=flat-square)
+![૮ ˶ᵔ ᵕ ᵔ˶ ა](https://komarev.com/ghpvc/?username=lustingserenity&label=૮%20˶ᵔ%20ᵕ%20ᵔ˶%20ა&color=dc143c&style=flat-square)
 
 <i> follow my main </i>
 
