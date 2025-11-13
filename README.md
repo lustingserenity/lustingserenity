@@ -2,6 +2,8 @@
 
 ![૮ ˶ᵔ ᵕ ᵔ˶ ა](https://komarev.com/ghpvc/?username=lustingserenity&label=૮%20˶ᵔ%20ᵕ%20ᵔ˶%20ა&color=DC143C&style=flat-square)
 
+<i> follow my main </i>
+
 <img width="641" height="389" alt="Image" src="https://github.com/user-attachments/assets/5d90d518-e078-4fc6-9639-d10a6a249c42" />
 
 ── [`Pronouns.page`](https://en.pronouns.page/@Shann_) ⚡︎ [`Spotify`](https://open.spotify.com/user/3174vbnlzenqshrjfcmumfhxe2ie) ⚡︎ [`Strawpage`](https://derivedlust.straw.page/) ⚡︎ [`Patreon`](https://www.patreon.com/c/LongingEtherealDesires) ⚡︎ [`Carrd`](https://intoxicatinglust.carrd.co/)
